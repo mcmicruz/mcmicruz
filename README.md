@@ -8,7 +8,7 @@ About me (Mi):
 
 🤔 I’m looking for help with Front End and Back End.
 
-⚡ Fun fact: well... I like cooking and eat, wine, chatting... and crochet. I love my cat (Zap Paz). 
+⚡ Fun fact: well... I like cooking and eat, wine, chatting... and crocheting. I love my cat (Zap Paz). 
 
 
 
