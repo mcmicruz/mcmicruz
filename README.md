@@ -8,4 +8,10 @@ About me (Mi):
 ⚡ Fun fact: well... I like cooking and eat, wine, chatting... and crochet. I love my cat (Zap Paz). 
 
 🔍 You can find me in:
+
 [LinkedIn](https://www.linkedin.com/in/mcmichellecruz/)
+
+[Instagram](https://www.instagram.com/mcmichellecruz/)
+
+[Facebook](https://www.facebook.com/mcmichellecruz-110814063834241)
+
