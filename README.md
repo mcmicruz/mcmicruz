@@ -14,10 +14,8 @@ About me (Mi):
 
 🔍 You can find me in:
 
-[LinkedIn](https://www.linkedin.com/in/mcmichellecruz/)
+[LinkedIn](https://www.linkedin.com/in/soumichellecruz/)
 
-[Instagram](https://www.instagram.com/mcmichellecruz/)
-
-[Facebook](https://www.facebook.com/mcmichellecruz-110814063834241)
+[Instagram](https://www.instagram.com/soumichellecruz/)
 
 [Youtube](https://www.youtube.com/channel/UCrYJSYC0cXm-xJbsEOR0fLw/playlists?view_as=subscriber)
